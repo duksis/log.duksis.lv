@@ -1,1 +1,0 @@
-# log.duksis.lv
